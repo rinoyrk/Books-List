@@ -1,5 +1,3 @@
-# Must Read Books for Self Development
- 
 ### [The Magic of Thinking Big](https://amzn.to/2Cyfecz)
 
 ### [The 7 Habits of Highly Effective People](https://amzn.to/3hTUYlK)
